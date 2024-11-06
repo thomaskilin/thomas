@@ -1,1 +1,1 @@
-# thomas
+ola, eu sou o thomas thomas 16 anos, comecei a trabalhar com 13 anos, meu primeiro trabalho foi mecanico de cambios automaticos,trabalhei ate os 15, ai comecei a fazer curso de barbearia q acabou não dando certo,vi uma oprtunidade de trabalhar em pet shop,q infelizmente nao deu certo e atualmente eu estou trabalhando com parque de diversões, mas pretendo trabalhar como menor aprendiz e fazer faculdade de engenharia mecanica, sempre gostei de trabalhar com graxa e mecher em carros.# thomas
